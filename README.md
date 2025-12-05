@@ -24,7 +24,7 @@ Here are some of my key projects:
 ---
 
 ## 📫 Connect with Me
-- LinkedIn: [linkedin.com/in/piyush-agar](https://www.linkedin.com/in/piyush-agar/)  
+- Linked: Inwww.linkedin.com/in/piyush-agar-509573283
 
 ---
 
